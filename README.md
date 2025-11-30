@@ -1,0 +1,2 @@
+# wiradamai
+detail
